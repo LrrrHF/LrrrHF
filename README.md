@@ -1,4 +1,9 @@
 - 👋 Hi, I’m @LrrrHF
+- 💩 Hobies include, but not limited to:
+  - Fucking with your shit
+  - Pressing buttons with covers on them
+  - Flipping switches with tape on them
+  - Fucking your shit up
 - 👀 I’m interested in fucking up your shit
 - 🌱 I’m currently looking into fucking up your shit
 - 💞️ I’m looking to collaborate on fucking shit up
