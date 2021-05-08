@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @LrrrHF
+- 👀 I’m interested in fucking up your shit
+- 🌱 I’m currently looking into fucking up your shit
+- 💞️ I’m looking to collaborate on fucking shit up
+- 📫 lrrr@hackforums.net
